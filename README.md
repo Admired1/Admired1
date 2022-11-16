@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @Admired1
+- 👋 Hi, I’m @Ananias Karaolanis
 - 👀 I’m interested in Junior Business Analyst / Junior Data Analyst role
 - 🌱 I’m currently learning Power BI
 - 📫 How to reach me akaraolanis2@gmail.com / https://www.linkedin.com/in/ananias-karaolanis-37845621b/
